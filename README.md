@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Kryusagi
+- 👋 Hi, I’m @Kyrusagi
 - 👀 I’m interested in Friday Night Funkin'
 - 🌱 I’m currently learning how to make mods for Friday Night Funkin'
 - 💞️ I’m looking to collaborate on projects for Friday Night Funkin'
